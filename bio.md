@@ -16,4 +16,4 @@ Rome, Italy
 *I'm from Crown Point, Indiana which is just over the border from Chicago. I went to Indiana Univeristy where I majored in Chinese, Arabic, French and Linguistics, and minored in Spanish and West European Studies. I then moved to Taipei, Taiwan where I lived for about 4 years teaching English. Then I moved to Rome, Italy.*
 
 ##Other info about me
-**I have two cats, one is Kenny and he is from Taiwan. I saved him from some jerk who was gonna leave him with the vet to die. I brought him to Italy with me and I got another cat named Lana. Someone left her in a cage outside of a cat rescue place in the middle of the night. **
+**I have two cats, one is Kenny and he is from Taiwan. I saved him from some jerk who was gonna leave him with the vet to die. I brought him to Italy with me and I got another cat named Lana. Someone left her in a cage outside of a cat rescue place in the middle of the night.**
